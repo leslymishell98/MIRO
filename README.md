@@ -1,2 +1,4 @@
 # MIRO
 Entrega de wireframe ecommerce personal
+Lesly Pupiales
+https://miro.com/welcomeonboard/OC91MkdTL3RnWEp3NUFoQVI0bWFrRng1TzMrejFEaEdaWXlwZ3htQ05LcVUyQkdxbStFeURXb0VFS2NMRzZZVTVSTHhlMEVkZC90R0FUYW80LytrMFR1bkxGWTlEUTNkNEhBckF5K3RVRnNJeUhOUjJ5NFBLcVc0Qmxub2pQOWhhWWluRVAxeXRuUUgwWDl3Mk1qRGVRPT0hdjE=?share_link_id=673961491286
